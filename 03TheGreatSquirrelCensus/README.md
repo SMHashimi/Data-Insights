@@ -1,2 +1,2 @@
-## Primary Fur Colors
+## The Great Squirrel Consus
 ![primaryfurcolor](https://github.com/user-attachments/assets/dbdb51d3-2a15-4633-9523-4be4ebfb0d5a)
